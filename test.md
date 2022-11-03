@@ -6,3 +6,4 @@ Snowden
 Hellvyllen
 Scafel Pike
 Ben Nevis
+Mt. Silver
