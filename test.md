@@ -1,4 +1,4 @@
-# Mountaina in the UK
+# Mountains in the UK
 
 England is not very mountainous.
 blah blah
